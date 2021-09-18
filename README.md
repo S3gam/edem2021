@@ -11,4 +11,5 @@ Me llamo Sergi, tengo 24 años y trabajo en el departamento de exportación de l
 ## Dónde encontrarme
 
  - Linkedin: https://www.linkedin.com/in/sergi-garcia-mic%C3%B3-6b4455161/
- - 
+ - Email: sergigarciamico@hotmail.com
+ - Tfno: +34 678854476
